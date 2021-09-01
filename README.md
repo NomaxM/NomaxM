@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NomaxM
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently learning Programming
-- 💞️ I’m looking to collaborate on idk
+- 💞️ I’m 22
 - 📫 How to reach me noahmarkow@gmail.com
 
 <!---
