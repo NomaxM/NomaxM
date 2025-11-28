@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @NomaxM
-- 👀 I’m interested in Gaming
 - 🌱 I’m currently learning Programming
 - 💞️ I’m 18 years old
 - 📫 How to reach me noahmarkow@gmail.com
